@@ -1,0 +1,2 @@
+# oam_kodaira20220913kodaira14elementaryschool1530koga01p3p01
+小平第十四小学校ドローン空撮20220913
